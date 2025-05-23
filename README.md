@@ -26,6 +26,10 @@ I sure am a person.
 Not just any person.
 A mental Ukrainian.
 
+Eversiege is now on **Telegram**!
+
+I will not tell you what the username is, find it yourself lol
+
 > _sawrams has been here_
 >
 > Certified Coopydood lover
