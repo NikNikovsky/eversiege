@@ -34,7 +34,7 @@ I will not tell you what the username is, find it yourself lol
 >
 > Certified Coopydood lover
 <!-- This bio was infected by Coopydood -->
-
+<!--the following links do not work except for dogrose, whatever that is ~NN -->
 ![1](https://rozbrajacz.futbol/permanent/eversiege-1.png)
 ![paypal](https://rozbrajacz.futbol/permanent/eversiege-paypal.png)
 ![2](https://rozbrajacz.futbol/permanent/eversiege-2.png)
