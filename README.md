@@ -22,6 +22,8 @@ Somebody fuck me - eversiege
 
 You are the one that got me into ArcOS - [Nik Nikovsky] (https://github.com/NikNikovsky)
 
+ывфывшый21212 - helloryuko
+
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
@@ -40,6 +42,8 @@ I will not tell you what the username is, find it yourself lol
 ![2](https://rozbrajacz.futbol/permanent/eversiege-2.png)
 ![eversiege](https://rozbrajacz.futbol/permanent/eversiege-doit.png)
 ![dogrose](https://i.imgur.com/HgzBZhK.png)
+![првие](https://github.com/user-attachments/assets/8e5d500a-f48a-4c86-93c9-b2200547cc71)
+
 
 <!--
 **eversiege/eversiege** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
