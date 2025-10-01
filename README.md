@@ -10,6 +10,8 @@ _"You look like a ballsack of a Terraria character" - Coopydood_
 
 Im Fucking Mental - Sawrams
 
+Ай вас хер (I was here) - BAGMAY904 [02. A. G. Cook - Beautiful.mp3](https://github.com/user-attachments/files/22635846/02.A.G.Cook.-.Beautiful.mp3)
+
 who the hell is Sawrams?
 
 instructions unclear - dick stuck in toaster?? call eversiege today!!1!
