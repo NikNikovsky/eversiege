@@ -6,6 +6,8 @@
 
 _"You look like a ballsack of a Terraria character" - Coopydood_
 
+мегалодон дон дон батя гондон, кстати с десятилетием данилку мысливца :3 - [v1RRY](https://t.me/winewrapper)
+
 9/11 - Sawrams
 
 Im Fucking Mental - Sawrams
